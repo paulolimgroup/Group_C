@@ -6,6 +6,4 @@ Members:
     Mary Angelous Taborada,
     Diana Jane Abella
     
-whatever
-
-asdf
+When going gets tough, the tough get going
