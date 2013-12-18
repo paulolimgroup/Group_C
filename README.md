@@ -6,4 +6,6 @@ Members:
     Mary Angelous Taborada,
     Diana Jane Abella
     
-When going gets tough, the tough get going
+whatever
+
+Only know you love her when you let her go.
